@@ -1,5 +1,6 @@
-![image](https://user-images.githubusercontent.com/108704986/177241907-ff4610e7-36cc-4b17-ba9a-8efdabd439f6.png)
-# Curriculum Vitae - Matías Krumm Rojas
+
+![linkedin](https://user-images.githubusercontent.com/108704986/177243283-d171d8e3-124a-4576-ba7e-c36ce0ff97e8.jpeg)
+# Matías Krumm Rojas - Currículum Vitae
 # Resumen
 Ex Alumno del Colegio Monte Tabor. Alumno regular de quinto año de Ingeniería Comercial Universidad Adolfo Ibañez (UAI), licenciado en Ciencias de la Administración de empresas. Tengo mucho interés en adquirir experiencia y aprender en distintas áreas (Innovación, Evaluación de Proyectos, Investigación de Mercado, Planes de Marketing, etc.). Actualmente estoy cursando un Magíster en Innovación y Diseño (MID) como parte de mi programa de Ingeniería Comercial en la UAI.
 # Experiencia profesional y académica
